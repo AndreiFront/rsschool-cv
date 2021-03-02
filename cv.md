@@ -4,7 +4,7 @@ Andrei Yafimik
 ---
 
 # Contacts
-Location: Belarus - Minsk, [Telegrsm](https://t.me/ANDREI_YAFIMIK)
+Location: Belarus - Minsk, [Telegram](https://t.me/ANDREI_YAFIMIK)
 
 ---
 
